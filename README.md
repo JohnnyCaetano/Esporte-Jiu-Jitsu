@@ -3,7 +3,7 @@
 ## Sobre meu esporte favorito 🥋
 ***Hi, my name is Johnny. I am from Brazil***  🇧🇷
 
-***Tenho 29 anos de idade,*** ***e estou iniciando no ramo da tecnologia*** 💻
+***Tenho 29 anos de idade,*** ***e sou do ramo da tecnologia*** 💻
 
 ***Aqui vou deixar salvo um pouco da minha trajetória no jiu-jitsu.*** 💥
 
